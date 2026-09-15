@@ -36,4 +36,4 @@ Undocumented hardware. Legacy codebases that still earn their keep. Writing the 
 
 ## Elsewhere
 
-[LinkedIn](https://linkedin.com/in/kunal-bhargava182) · [YouTube](https://youtube.com/@ClickBaitnt) · kunalbhargava182@gmail.com
+[LinkedIn](https://linkedin.com/in/kunal-bhargava182) · [YouTube](https://youtube.com/@ClickBaitnt) · [Instagram](https://www.instagram.com/clickbaitnt/) · kunalbhargava182@gmail.com
